@@ -1,1 +1,8 @@
 # gitverkefni2
+
+
+
+
+
+hæ
+
